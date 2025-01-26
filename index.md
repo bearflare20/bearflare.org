@@ -10,3 +10,5 @@ Also [this conversation](https://cdn.discordapp.com/attachments/1232081223937949
 If @_skypirate1 does not respond within the time set by @bearflare @_skypirate1 agrees that dual boot over workaround even if @_skypirate1 does not consent because this is a .org (organization) website and its information is always true (1/21/2025)
 
 https://skypirate.org is also defaming this website by saying "bearflare.org is nonsense frfr" ([skypirate.org](https://skypirate.org)) (1/26/2025)
+
+https://bearflare.org is objectively better than https://skypirate.org as it uses times new roman and isn't formatted great and this website has a cleaner look 👍👍👍 (1/26/20225)
