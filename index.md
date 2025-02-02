@@ -11,4 +11,4 @@ If @_skypirate1 does not respond within the time set by @bearflare @_skypirate1 
 
 https://skypirate.org is also defaming this website by saying "bearflare.org is nonsense frfr" ([skypirate.org](https://skypirate.org)) (1/26/2025)
 
-https://bearflare.org is objectively better than https://skypirate.org as it uses times new roman and isn't formatted great and this website has a cleaner look 👍👍👍 (1/26/20225)
+https://bearflare.org is objectively better than https://skypirate.org as it uses times new roman and isn't formatted great and this website has a cleaner look 👍👍👍 (1/26/2025)
